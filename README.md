@@ -46,5 +46,5 @@ developers can craft a game that captivates players and
 leaves a lasting impression in the gaming community.
 
  SUBMITTED BY : Group - 49
- 1. Sharia Sarker (2022331012)
- 2. Islam Uddin Bijay(2022331091
+ 1. Islam Uddin Bijoy
+ 2. Sharia Sarker 
